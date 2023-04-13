@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JannTibetan
-- 👀 I’m interested in BUddhist Studies and Digital Humanities
+- 👀 I’m interested in Buddhist Studies and Digital Humanities
 
 
 <!---
